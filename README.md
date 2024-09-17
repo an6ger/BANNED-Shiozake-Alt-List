@@ -1,5 +1,7 @@
 # Public Banned Shiozake Alt Tracker
 
+They barely hit off my private alts 😭 
+
 Username | Ban Reason | Usage
 --------------- | ------------- | -------------
 Shiozake  | Exploits | Main Account/C7a2 Account
