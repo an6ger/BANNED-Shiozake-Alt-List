@@ -1,6 +1,6 @@
 # Public Banned Shiozake Alt Tracker
 
-They barely hit off my private alts 😭 
+private alts are the only alts i hide
 
 Username | Ban Reason | Usage
 --------------- | ------------- | -------------
